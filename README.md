@@ -1,4 +1,3 @@
-# jayanath
 <h1 align="center">Hi 👋, I'm JAYANATH K</h1>
 <h3 align="center">🌐 Connecting Dots in the Digital Universe</h3>
 
